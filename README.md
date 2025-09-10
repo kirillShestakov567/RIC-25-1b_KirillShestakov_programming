@@ -1,0 +1,1 @@
+# RIC-25-1b_KirillShestakov_programming
